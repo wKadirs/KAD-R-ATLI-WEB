@@ -1,0 +1,2 @@
+# KAD-R-ATLI-WEB
+WEB SİTE
